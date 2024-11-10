@@ -1,5 +1,8 @@
 # README
 
+byf:
+just a quick note before we chat: i can be a bit sensitive about first impressions, so try not to be too weird right off the bat. i'm weird myself, but there’s a limit to how much I can handle all at once. i get uncomfortable easily, but once we’ve spent some time talking, i'll definitely ease up n we can talk abt anything (this includes nsfw)
+
 anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
