@@ -6,7 +6,7 @@ byf:
 
 thin ice:
 - neurotypical adults
-- cis men
+- cis men (sounds funny but i have bad experience w them)
 
 anyways check out my art
 
