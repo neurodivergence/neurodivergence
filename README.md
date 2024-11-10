@@ -1,4 +1,4 @@
-# README
+you may int! i dont bite as long as you know boundaries! feel free to comment on my atabook
 
 byf:
 - dni fakeclaimers, anti-recovery, calls urself psychotic/bipolar for funny i hate u gusys, u demonise cluster b disorders, basic dni criteria
