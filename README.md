@@ -10,6 +10,8 @@ thin ice:
 - cis men (sounds funny but i have bad experience w them)
 - engage in flag discourse idk man flag is flag
 
+I LOVE TRANS PEOPLE!! PLEASE INT IF URE TRANS I LOVE TRANS PEOPLE (if ur cis then wtv. but if ur trans PLEASE INT!!)
+
 anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
