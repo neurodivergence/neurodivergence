@@ -8,7 +8,7 @@ byf:
 thin ice:
 - neurotypical adults
 - cis men (sounds funny but i have bad experience w them)
-- engage in flag discourse or lgbtq discourse idk man flag is flag (except for pedophiles/incest/harmful paraphilias fuck you)
+- engage in flag discourse or lgbtq discourse idk man flag is flag (except for pedophiles/incest/harmful paraphilias u arent welcome fuck you)
 
 I LOVE TRANS PEOPLE!! PLEASE INT IF URE TRANS I LOVE TRANS PEOPLE (if ur cis then wtv. but if ur trans PLEASE INT!!)
 
