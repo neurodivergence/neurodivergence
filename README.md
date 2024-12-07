@@ -9,7 +9,7 @@ thin ice:
 - neurotypical adults
 - cis men (sounds funny but i have bad experience w them)
 - engage in flag discourse or lgbtq discourse idk man flag is flag (except for pedophiles/incest/harmful paraphilias u arent welcome fuck you)
-- you use fonts when texting I can't read bro
+- i prefer not to interact with systems did! especially fictive/factive ones. you may crown however
 - okegom (i have the skins but uh I dong like the fandom)
 
 I LOVE TRANS PEOPLE!! PLEASE INT IF URE TRANS I LOVE TRANS PEOPLE (if ur cis then wtv. but if ur trans PLEASE INT!!)
