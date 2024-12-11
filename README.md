@@ -3,6 +3,7 @@ btw i prefer if u guys call my ocs/cos bipolar than autism, i am not autistic an
 
 byf:
 - dni fakeclaimers, anti-recovery, calls urself psychotic/bipolar/delulu etc for funny i hate u gusys, u demonise cluster b disorders (includes npd) n think bipolar r abusive, basic dni criteria
+- Btw I will not give any ex friend a chance if u decide to block me randomly w/o explanation. Gtfo if you only value this friendship for only venting/ranting which happens always. Im my own person
 - just a quick note before we chat: i can be a bit sensitive about first impressions, so try not to be too weird right off the bat. i'm weird n hypersexual myself, but there’s a limit to how much I can handle all at once. i get uncomfortable easily, but once we’ve spent some time talking, i'll definitely ease up n we can talk about pretty much anything (including nsfw or insensitive topics).
 
 thin ice:
@@ -13,6 +14,7 @@ thin ice:
 - self diagnosed minors uh
 
 I LOVE TRANS PEOPLE!! PLEASE INT IF URE TRANS I LOVE TRANS PEOPLE (if ur cis then wtv. but if ur trans PLEASE INT!!)
+
 
 anyways check out my art
 
