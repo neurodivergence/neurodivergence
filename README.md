@@ -1,4 +1,4 @@
-you may int! i dont bite as long as you know boundaries! feel free to comment on my atabook!
+you may int! i dont bite as long as you know boundaries! feel free to sign on my strawpage/atabook!
 btw i prefer if u guys call my ocs/cos bipolar than autism, i am not autistic and was always not. i've been prescribed w mood stabilisers + antipsychotics. i am under therapy, i am not self diagnosed.
 
 byf:
