@@ -1,20 +1,33 @@
-you may int! i dont bite as long as you know boundaries! feel free to sign on my strawpage/atabook!
-btw i prefer if u guys call my ocs/cos bipolar than autism, i am not autistic and was always not. i've been prescribed w mood stabilisers + antipsychotics. i am under therapy, i am not self diagnosed.
+here’s the organized version in all lowercase for rentry:  
 
-byf:
-- dni fakeclaimers, anti-recovery, calls urself psychotic/bipolar/delulu etc for funny i hate u gusys, u demonise cluster b disorders (includes npd) n think bipolar r abusive, basic dni criteria
-- Btw I will not give any ex friend a chance if u decide to block me randomly w/o explanation. Gtfo if you only value this friendship for only venting/ranting which happens always. Im my own person
-- just a quick note before we chat: i can be a bit sensitive about first impressions, so try not to be too weird right off the bat. i'm weird n hypersexual myself, but there’s a limit to how much I can handle all at once. i get uncomfortable easily, but once we’ve spent some time talking, i'll definitely ease up n we can talk about pretty much anything (including nsfw or insensitive topics).
+---
 
-thin ice:
-- neurotypical adults
-- cis men (sounds funny but i have bad experience w them)
-- engage in flag discourse or lgbtq discourse idk man flag is flag (except for pedophiles/incest/harmful paraphilias u arent welcome fuck you)
-- i prefer not to interact with underaged systems did/osdd! especially fictive/factive ones. you may crown however
-- self diagnosed minors uh
+### **before you follow (byf)**  
 
-I LOVE TRANS PEOPLE!! PLEASE INT IF URE TRANS I LOVE TRANS PEOPLE (if ur cis then wtv. but if ur trans PLEASE INT!!)
+#### **general notes**  
+- you’re welcome to interact! i don’t bite as long as you know boundaries. feel free to sign my **strawpage/atabook**!  
+- **please refer to my ocs/cos as bipolar** rather than autistic. i am **not autistic** and have never been. i have a **bipolar ii diagnosis**, am prescribed **mood stabilizers + antipsychotics**, and am in **therapy**. i am **not self-diagnosed**.  
 
+#### **do not interact (dni)**  
+- fakeclaimers, anti-recovery individuals.  
+- people who call themselves **psychotic, bipolar, or delulu** for fun—**i hate you** for demonizing actual disorders.  
+- those who demonize **cluster b disorders** (including **npd**) or think bipolar people are inherently abusive.  
+- basic dni criteria (racist, homophobic, transphobic, etc.).  
+
+#### **interaction preferences**  
+- **ages 15 below:** interact with **caution**
+- **ages 17+ and adults:** preferred if you want to be **close friends**.  
+- **first impressions matter** to me. i can be sensitive about them, so please don’t be **overly weird** right off the bat. i’m **weird and hypersexual myself**, but i have a limit to how much i can handle at once. if we talk for a while, i’ll **ease up**, and we can discuss **most topics, including nsfw or insensitive subjects**.  
+
+#### **thin ice (be careful before interacting)**  
+- **neurotypical adults.**  
+- **cis men** (i have **bad experiences** with them).  
+- **lgbtq+/flag discourse**—i don’t care, **a flag is a flag** (exceptions: **pedophiles, incest, harmful paraphilias—fuck you**).  
+- **underage did/osdd systems**, especially **fictive/factive ones** (you may **crown**, though).  
+- **self-diagnosed minors.**  
+
+#### **other notes**  
+- **i love trans people!** please interact if you’re **trans**, i love trans people! (**if you’re cis, whatever, but if you’re trans, please interact!**)  
 
 anyways check out my art
 
