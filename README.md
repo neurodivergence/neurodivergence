@@ -1,7 +1,3 @@
-here’s the organized version in all lowercase for rentry:  
-
----
-
 ### **before you follow (byf)**  
 
 #### **general notes**  
