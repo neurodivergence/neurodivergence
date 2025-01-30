@@ -2,7 +2,8 @@
 
 #### **general notes**  
 - you’re welcome to interact! i don’t bite as long as you know boundaries. feel free to sign my **strawpage/atabook**!  
-- **please refer to my ocs/cos as bipolar** rather than autistic. i am **not autistic** and have never been. i have a **bipolar ii diagnosis**, am prescribed **mood stabilizers + antipsychotics**, and am in **therapy**. i am **not self-diagnosed**.  
+- **please refer to my ocs/cos as bipolar** rather than autistic. i am **not autistic** and have never been. i have a **bipolar ii diagnosis**, am prescribed **mood stabilizers + antipsychotics**, and am in **therapy**. i am **not self-diagnosed**.
+- i'm psychotic, so please reality check me (with my consent) if i'm experiencing grandiose or delusional psychosis. call me by my real name (**bob**) and not an **irl of someone/something**—unless it's for comfort reasons and i'm actively receiving treatment.
 
 #### **do not interact (dni)**  
 - fakeclaimers, anti-recovery individuals.  
@@ -11,8 +12,8 @@
 - basic dni criteria (racist, homophobic, transphobic, etc.).  
 
 #### **interaction preferences**  
-- **ages 15 below:** do not interact unless friends **otherwise** iwec if friends
-- **ages 17+ and adults:** preferred if you want to be **close friends**.  
+- **ages 15 below:** do not interact unless **friends**. otherwise, **iwec** if friends—since even friends still shove conversations toward nsfw. i may make exceptions **if you’re asexual and not a freak**.
+-  **ages 17+ and adults:** preferred if you want to be **close friends**.  
 - **first impressions matter** to me. i can be sensitive about them, so please don’t be **overly weird** right off the bat. i’m **weird and hypersexual myself**, but i have a limit to how much i can handle at once. if we talk for a while, i’ll **ease up**, and we can discuss **most topics, including nsfw or insensitive subjects**.  
 
 #### **thin ice (be careful before interacting)**  
