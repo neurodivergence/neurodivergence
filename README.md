@@ -23,8 +23,8 @@
 - **underage did/osdd systems**, especially **fictive/factive ones** (you may **crown**, though).  
 - **self-diagnosed minors.**  i do not want to talk to unmedicated teens, thats all!
 
-#### **other notes**  
-- **i love trans people!** please interact if you’re **trans**, i love trans people! (**if you’re cis, whatever, but if you’re trans, please interact!**)  
+> [!NOTE]
+> **i love trans people!** please interact if you’re **trans**, i love trans people! (**if you’re cis, whatever, but if you’re trans, please interact!**)
 
 anyways check out my art
 
