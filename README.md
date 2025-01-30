@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=viewcount)
+![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=page-visits)
 ## **before you follow (byf)**  
 
 ### **general notes**  
