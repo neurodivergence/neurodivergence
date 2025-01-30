@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=viewcount)
 ## **before you follow (byf)**  
 
 ### **general notes**  
