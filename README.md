@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=page+visits) 
 ![](https://img.shields.io/badge/katsumitanaka.-5865F2?style=for-the-badge&logo=discord&logoColor=white)
 ## **before you follow (byf)**  
+<img src="https://files.catbox.moe/qh8mf6.jpg" width=700 height=100/>
 
 ### **general notes**  
 > - you’re welcome to interact! i don’t bite as long as you know boundaries. feel free to sign my **strawpage/atabook**!  
