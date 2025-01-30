@@ -12,7 +12,7 @@
 - basic dni criteria (racist, homophobic, transphobic, etc.).  
 
 #### **interaction preferences**  
-- **ages 15 below:** do not interact unless **friends**. otherwise, **iwec** if friends—since even friends still shove conversations toward nsfw. i may make exceptions **if you’re asexual and not a freak**.
+- **ages 15 below:** do not interact unless **friends**. otherwise, **iwec** if friends—since even friends still shove conversations toward nsfw. i may make exceptions **if you’re asexual and not a <sup>freak**.</sup>
 -  **ages 17+ and adults:** preferred if you want to be **close friends**.  
 - **first impressions matter** to me. i can be sensitive about them, so please don’t be **overly weird** right off the bat. i’m **weird and hypersexual myself**, but i have a limit to how much i can handle at once. if we talk for a while, i’ll **ease up**, and we can discuss **most topics, including nsfw or insensitive subjects**.  
 
