@@ -11,7 +11,7 @@
 - basic dni criteria (racist, homophobic, transphobic, etc.).  
 
 #### **interaction preferences**  
-- **ages 15 below:** interact with **caution**
+- **ages 15 below:** do not interact unless friends **otherwise** iwec if friends
 - **ages 17+ and adults:** preferred if you want to be **close friends**.  
 - **first impressions matter** to me. i can be sensitive about them, so please don’t be **overly weird** right off the bat. i’m **weird and hypersexual myself**, but i have a limit to how much i can handle at once. if we talk for a while, i’ll **ease up**, and we can discuss **most topics, including nsfw or insensitive subjects**.  
 
@@ -20,7 +20,7 @@
 - **cis men** (i have **bad experiences** with them).  
 - **lgbtq+/flag discourse**—i don’t care, **a flag is a flag** (exceptions: **pedophiles, incest, harmful paraphilias—fuck you**).  
 - **underage did/osdd systems**, especially **fictive/factive ones** (you may **crown**, though).  
-- **self-diagnosed minors.**  
+- **self-diagnosed minors.**  i do not want to talk to unmedicated teens, thats all!
 
 #### **other notes**  
 - **i love trans people!** please interact if you’re **trans**, i love trans people! (**if you’re cis, whatever, but if you’re trans, please interact!**)  
