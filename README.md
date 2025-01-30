@@ -1,4 +1,6 @@
-![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=page+visits)
+![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=page+visits) 
+![](https://img.shields.io/badge/katsumitanaka.-5865F2?style=for-the-badge&logo=discord&logoColor=white)
+![](https://img.shields.io/badge/katsumitanaka-000000?style=for-the-badge&logo=tiktok&logoColor=white)
 ## **before you follow (byf)**  
 
 ### **general notes**  
