@@ -26,9 +26,9 @@
 > - **self-diagnosed minors.**  i do not want to talk to unmedicated teens, thats all!
 
 > [!NOTE]
-> > **i love trans people!** please interact if you’re **trans**, i love trans people! (**if you’re cis, whatever, but if you’re trans, please interact!**)
+> **i love trans people!** please interact if you’re **trans**, i love trans people! (**if you’re cis, whatever, but if you’re trans, please interact!**)
 
-anyways check out my art
+> anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
 ![alt text](https://files.catbox.moe/7shorx.png)
