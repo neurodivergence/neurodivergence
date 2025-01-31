@@ -19,7 +19,7 @@
 > -  **ages 17+ and adults:** preferred if you want to be **close friends**.  
 > - **first impressions matter** to me. i can be sensitive about them, so please don’t be **overly weird** right off the bat. i’m **weird and hypersexual myself**, but i have a limit to how much i can handle at once. if we talk for a while, i’ll **ease up**, and we can discuss **most topics, including nsfw or insensitive subjects**.  
 
-#### **thin ice (be careful before interacting)**  
+#### **thin ice**  
 > - **neurotypical adults.**  
 > - **cis men** (i have **bad experiences** with them).  
 > - **lgbtq+/flag discourse**—i don’t care, **a flag is a flag** (exceptions: **pedophiles, incest, harmful paraphilias—fuck you**).  
