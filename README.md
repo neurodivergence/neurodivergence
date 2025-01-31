@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=katsumishusband&color=90b8af&style=for-the-badge&label=page+visits) 
 ![](https://img.shields.io/badge/katsumitanaka.-5865F2?style=for-the-badge&logo=discord&logoColor=white)
-## **before you follow (byf)**  
+## **before you follow ﹙byf﹚**  
 <img src="https://files.catbox.moe/qh8mf6.jpg" width=700 height=50/>
 
 ### **general notes**  
@@ -8,7 +8,7 @@
 > - **please refer to my ocs/cos as bipolar** rather than autistic. i am **not autistic** and have never been. i have a **bipolar ii diagnosis**, am prescribed **mood stabilizers + antipsychotics**, and am in **therapy**. i am **not self-diagnosed**.
 > - i'm psychotic, so please reality check me (with my consent) if i'm experiencing grandiose or delusional psychosis. call me by my real name (**bob**) and not an **irl of someone/something**—unless it's for comfort reasons and i'm actively receiving treatment.
 
-### **do not interact (dni)**  
+### **do not interact ﹙dni﹚**  
 > - fakeclaimers, anti-recovery individuals.  
 > - people who call themselves **psychotic, bipolar, or delulu** for fun—**i hate you** for demonizing actual disorders.  
 > - those who demonize **cluster b disorders** (including **npd**) or think bipolar people are inherently abusive.  
