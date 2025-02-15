@@ -12,7 +12,8 @@
 > - fakeclaimers, anti-recovery individuals.  
 > - people who call themselves **psychotic, bipolar, or delulu** for fun—**i hate you** for demonizing actual disorders.  
 > - those who demonize **cluster b disorders** (including **npd**) or think bipolar people are inherently abusive.  
-> - basic dni criteria (racist, homophobic, transphobic, etc.).  
+> - basic dni criteria (racist, homophobic, transphobic, etc.).
+> - my username is hypersexuality, but that does not mean you can talk about nsfw topics with me or act inappropriately. i will only accept closed
 
 ### **interaction preferences**  
 > - **ages 15 below:** do not interact unless **friends**. otherwise, **iwec** if friends—since even friends still shove conversations toward nsfw. i may make exceptions **if you’re asexual and not a <sup>freak**.</sup>
