@@ -1,7 +1,8 @@
-whoever friends with someone named blizz or ghost related idk man (exception; closed friends) dni. I got harassed n doxxed while this situation happening but i dont think it has any relation to this. still, not acting victim but it makes me scared
-even endangering me. im scared I should be playing playdough and stuff at this age
+whoever is friends with someone named blizz or anyone ghost related name, please do not interact (exception: close friends). i was harassed and doxxed while this situation was happening, though i dont think its directly related. still, im not trying to act like a victim, but it scared me— its endangering me
 
-im tired of these sides n stuff spread whatever u want from me, just please stop harrassing me its scaring me. an adult should not be having petty beef w a teen
+im scared. i should be playing with playdough at my age, not dealing with this
+
+im tired of all these sides and drama. spread whatever you want about me, just please stop harassing me. its scaring me. an adult shouldnt be having petty beef with a teenager
 
 > anyways check out my art
 
