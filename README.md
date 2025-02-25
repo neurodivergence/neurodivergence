@@ -1,4 +1,4 @@
-whoever friends with someone named blizz or ghost related idk man (exception; closed friends) I got harassed n doxxed while this situation happening. not acting victim but it makes me scared
+whoever friends with someone named blizz or ghost related idk man (exception; closed friends) dni. I got harassed n doxxed while this situation happening but i dont think it has any relation to this. still, not acting victim but it makes me scared
 even endangering me. im scared I should be playing playdough and stuff at this age
 
 im tired of these sides n stuff spread whatever u want from me, just please stop harrassing me its scaring me. an adult should not be having petty beef w a teen
