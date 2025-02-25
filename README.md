@@ -1,4 +1,4 @@
-whoever friends with someone named ice.zip or ghost related idk man (exception; closed friends) I got harassed n doxxed while this situation happening. not acting victim but it makes me scared
+whoever friends with someone named blizz or ghost related idk man (exception; closed friends) I got harassed n doxxed while this situation happening. not acting victim but it makes me scared
 even endangering me. im scared I should be playing playdough and stuff at this age
 
 > anyways check out my art
