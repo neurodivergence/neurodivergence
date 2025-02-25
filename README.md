@@ -1,5 +1,5 @@
 whoever friends with spiritualwhiteout idk man (exception; closed friends) I got harassed n doxxed while this situation happening. not acting victim but it makes me scared
-even endangering me.  there might be police involved too, im scared
+even endangering me. im scared I should be playing playdough and stuff at this age
 
 > anyways check out my art
 
