@@ -6,7 +6,7 @@ if were not compatible, thats okay. if anyone feels the need to talk badly about
 
 i just want to feel safe. you can say whatever you want, but please dont harass me. im still a minor, not an adult like you people
 
-i have awful paranoia n very impulsive, please understand i can be hard to handle sometimes. im not sure if i want to seem forgiveness anymore. ive been betrayed by the same person
+i have awful paranoia n very impulsive, please understand i can be hard to handle sometimes. im not sure if i want to seek forgiveness anymore. ive been betrayed by the same person
 
 > anyways check out my art
 
