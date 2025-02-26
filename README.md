@@ -2,7 +2,9 @@ whoever is friends with someone named blizz or anyone ghost related name, please
 
 im scared. i should be playing with playdough at my age, not dealing with this
 
-im tired of all these sides and drama. spread whatever you want about me, just please stop harassing me. its scaring me. an adult shouldnt be having petty beef with a teenager
+if were not compatible, thats okay. if anyone feels the need to talk badly about me, id rather they just block me instead. ive been told it was both of our faults, and im trying to process that. i know i can be gullible, but im working on it
+
+i just want to feel safe. you can say whatever you want, but please don’t harass me. im still a minor, not an adult like you people
 
 > anyways check out my art
 
