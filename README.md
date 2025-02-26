@@ -6,7 +6,7 @@ if were not compatible, thats okay. if anyone feels the need to talk badly about
 
 i just want to feel safe. you can say whatever you want, but please dont harass me. im still a minor, not an adult like you people
 
-if u know my twt i tend to utter ritualistic or smth unpredictable there due to paranoia, it does not mean genuinely 
+i have awful paranoia n very impulsive, please understand i can be hard to handle sometimes
 
 > anyways check out my art
 
