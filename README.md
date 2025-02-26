@@ -6,6 +6,8 @@ if were not compatible, thats okay. if anyone feels the need to talk badly about
 
 i just want to feel safe. you can say whatever you want, but please dont harass me. im still a minor, not an adult like you people
 
+if u know my twt i tend to utter ritualistic or smth unpredictable there due to paranoia, it does not mean genuinely 
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
