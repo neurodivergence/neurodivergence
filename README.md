@@ -2,7 +2,7 @@ whoever is closed friend with spiritualwhiteout, please do not interact. i was h
 
 im scared. i should be playing with playdough at my age, not dealing with this
 
-if the harassment goes further, id have to make document for this, im sorry
+if the harassment goes further, id have to make document about this guy, im sorry
 
 if were not compatible, thats okay. if anyone feels the need to talk badly about me, id rather they just block me instead. ive been told it was both of our faults, and im trying to process that. i know i can be gullible, but im working on it
 
