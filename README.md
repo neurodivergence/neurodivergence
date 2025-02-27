@@ -10,7 +10,7 @@ even though i may be turning 18 this year, that doesn’t change the fact that i
 
 i have awful paranoia and im really impulsive. please understand i can be hard to handle sometimes. im not sure if i want to seek forgiveness anymore. ive been betrayed by the same person so many times and keep trusting too easily
 
-atabook is off
+ill take this down once my paranoia settles, its been a recurring issue for two weeks. for now, the person will stay in my dni until weve both apologized or the situation is resolved. im moving on from the friendship
 
 > anyways check out my art
 
