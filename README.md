@@ -10,6 +10,8 @@ i just want to feel safe. you can say whatever you want, but please dont harass 
 
 i have awful paranoia and im really impulsive. please understand i can be hard to handle sometimes. im not sure if i want to seek forgiveness anymore. ive been betrayed by the same person so many times and keep trusting too easily
 
+atabook is off
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
