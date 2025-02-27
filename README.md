@@ -1,4 +1,4 @@
-whoever is closed friend with someone named blizz or anyone ghost related name, please do not interact. i was harassed and doxxed while this situation was happening, though i dont think its directly related. still, im not trying to act like a victim, but it scared me— its endangering me
+whoever is closed friend with spiritualwhiteout, please do not interact. i was harassed and doxxed while this situation was happening, though i dont think its directly related. still, im not trying to act like a victim, but it scared me— its endangering me
 
 im scared. i should be playing with playdough at my age, not dealing with this
 
