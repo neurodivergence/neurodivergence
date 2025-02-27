@@ -12,6 +12,8 @@ i have awful paranoia and im really impulsive. please understand i can be hard t
 
 ill take this down once my paranoia settles, its been a recurring issue for two weeks. it just got worsened by now. for now, the person will stay in my dni until weve both apologized or the situation is resolved. im moving on from the friendship
 
+i dont think anyone is stalking me. people are too busy with their own lives to do that. im just paranoid, and its something im working through. i know my mind tends to overthink things, but i dont want to assume the worst about anyone
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
