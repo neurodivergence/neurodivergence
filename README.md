@@ -14,6 +14,8 @@ ill take this down once my paranoia settles, its been a recurring issue for two 
 
 i dont think anyone is stalking me. people are too busy with their own lives to do that. im just paranoid, and its something im working through. i know my mind tends to overthink things, but i dont want to assume the worst about anyone
 
+repeating again, im not a victim. but if you insist on mocking me like i am, then tell me—what does that make *you?*
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
