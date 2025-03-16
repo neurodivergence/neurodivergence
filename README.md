@@ -1,4 +1,4 @@
-wip
+dni if u namecall during arguments
 
 > anyways check out my art
 
