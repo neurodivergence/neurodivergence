@@ -1,11 +1,4 @@
-if ur my ex and youre not in there mainly cause you did bare minimum 
-
-blacklist:
-fredda_fazwolf - reasons: animal abuse, pedophillic art, design theft, adding her own ocs to owed art without permission, using others ocs without permission, causing general discomfort among many people. also pretty much my groomer as well LMAO
-
-skytrove - i basically showed him my fucking nxde and he was mostly using me for sex
-
-u may dm for proof
+feel free to int
 
 > anyways check out my art
 
