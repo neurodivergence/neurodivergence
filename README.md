@@ -1,4 +1,4 @@
-feel free to int
+bipolar II comorbid bpd
 
 > anyways check out my art
 
