@@ -2,7 +2,7 @@
 
 bipolar II comorbid bpd
 
-dni if u like my ex im tired of yall lol
+dni if u like my ex im tired of yall lol. i will not change for a person and im better expressing this way
 
 > anyways check out my art
 
