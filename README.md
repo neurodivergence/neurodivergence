@@ -1,6 +1,8 @@
+**owner of nssct regiment**
+
 bipolar II comorbid bpd
 
-dni if ur like my ex im tired of yall lol
+dni if u like my ex im tired of yall lol
 
 > anyways check out my art
 
