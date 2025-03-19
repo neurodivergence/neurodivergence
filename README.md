@@ -2,7 +2,7 @@
 
 bipolar II comorbid bpd
 
-dni if u like my ex im tired of yall lol. i will not change for a person and im better expressing this way
+dni if u like my ex im tired of yall lol. do not put expectations if you come back, i never promise to change for a person. and is only accepting the offer, its not "giving a chance" 
 
 > anyways check out my art
 
