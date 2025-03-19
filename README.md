@@ -2,7 +2,7 @@
 
 bipolar II comorbid bpd
 
-dni if u like my ex im tired of yall lol. do not put expectations if you come back, i never promise to change for a person. and is only accepting the offer, its not "giving a chance" 
+dni if you like my ex, i’m tired of y’all lol. don’t put expectations on me if you come back—i never promise to change for anyone. also, accepting an offer isn’t "giving a chance."
 
 > anyways check out my art
 
