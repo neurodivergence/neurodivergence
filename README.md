@@ -1,5 +1,7 @@
 bipolar II comorbid bpd
 
+dni if ur like my ex im tired of yall lol
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
