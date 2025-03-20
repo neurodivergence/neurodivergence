@@ -2,7 +2,7 @@
 
 bipolar II comorbid bpd
 
-dni if you like my ex, i’m tired of y’all lol. don’t put expectations on me if you come back—i never promise to change for anyone, let alone my condition makes me unable to.
+dni if you like my ex, i’m tired of y’all lol. don’t put expectations on me if you come back—i never promise to change for anyone, let alone my condition makes me unable to
 
 do not discard and then hoover me, im tired of that shit
 
