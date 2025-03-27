@@ -2,6 +2,8 @@
 
 bipolar II comorbid bpd
 
+spiritualwhiteout or his friends, i don't like you guys im sorry
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
