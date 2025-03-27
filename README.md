@@ -5,7 +5,9 @@ bipolar II comorbid bpd
 feel free to int I don't mind whoever you are
 
 dni:
-- spiritualwhiteout or his friends, i don't like you guys im sorry. i don't wanna be hoovered and discarded again. or breadcrumbing. you literally joke about my rxpe vent
+- spiritualwhiteout or his friends, i don't like you guys im sorry. i don't wanna be hoovered and discarded again. or breadcrumbing. you literally joke about my vulnerability
+
+as a person with bpd i really cant handle with friendships like these anymore
  
 > anyways check out my art
 
