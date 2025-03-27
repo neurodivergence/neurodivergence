@@ -5,7 +5,7 @@ bipolar II comorbid bpd
 feel free to int 
 
 dni:
-- spiritualwhiteout or his friends, i don't like you guys im sorry. i don't wanna be hoovered and discarded again. the friendship has alot of hoovering/breadcrumbing/one sided from my friends advices. im not a placeholder okay
+- spiritualwhiteout or any of your friends, i'm sorry, but i don't like you guys. i don't want to be hoovered and discarded again. this friendship has involved a lot of hoovering, breadcrumbing, and one-sided effort, according to my friends' advice. i'm not a placeholder, okay? maybe try finding someone else
 
 as a person with bpd i really cant handle with friendships like these anymore
  
