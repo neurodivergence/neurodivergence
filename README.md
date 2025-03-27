@@ -3,7 +3,7 @@
 bipolar II comorbid bpd
 
 dni:
-- spiritualwhiteout or his friends, i don't like you guys im sorry. i don't wanna be hoovered and discarded again
+- spiritualwhiteout or his friends, i don't like you guys im sorry. i don't wanna be hoovered and discarded again. i could vent mistreatment he did to me if you want
 
 > anyways check out my art
 
