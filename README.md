@@ -3,7 +3,7 @@
 bipolar II comorbid bpd
 
 dni:
-- spiritualwhiteout or any of your friends, i'm sorry, but i don't like you guys. i don't want to be hoovered and discarded again and again. this friendship has involved a lot of hoovering, breadcrumbing, and one-sided, according to my friends / psychiatrist advice. i'm not a placeholder, okay? maybe try finding someone else
+- spiritualwhiteout or any of your friends, i'm sorry, but i don't like you. i don't want to be hoovered and discarded again and again. this friendship has involved a lot of hoovering, breadcrumbing, and one-sided, according to my friends / psychiatrist advice. i'm not a placeholder, okay? maybe try finding someone else
 - past exes who ARE adults. i can forgive teens (13-18) for their actions, they're learning from their mistakes. its wrong but its alright
 
 i really cant handle with friendships like these anymore. i just want friendship that i can feel safe and has genuine reconciliation
