@@ -4,8 +4,8 @@ bipolar II comorbid bpd
 
 dni:
 - past exes who ARE adults. i can forgive teens (13-18) for their actions, they're learning from their mistakes. its wrong but its alright
-- i block freely idgaf, usually when youre weird
-- when i type long, its usually because im episodic
+- i block freely idgaf, usually when youre creep
+- when i type long, its usually because im episodic and i act weirdly n immature at time because im stupid
 
 
 > anyways check out my art
