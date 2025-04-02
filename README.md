@@ -5,7 +5,7 @@ bipolar II comorbid bpd
 dni:
 - past exes who ARE adults. i can forgive teens (13-18) for their actions, they're learning from their mistakes. its wrong but its alright
 - i am strange, i do not want to act normal. i have tolerance acting normal now
-- youre free to vent your problems to me. im mental health advocate
+- youre free to vent your problems to me. im mental health advocate, you can talk my busy life yayaya
 
 > anyways check out my art
 
