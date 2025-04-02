@@ -1,4 +1,4 @@
-**owner of nssct regiment**
+**I'm taking a break, my strawpage questions are off.**
 
 bipolar II comorbid bpd
 
