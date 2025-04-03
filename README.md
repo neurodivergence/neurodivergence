@@ -1,4 +1,5 @@
 **I'm taking a break, my strawpage questions are off.**
+ive been getting alot of ableism comments lately, it's deteriorating my mental health
 
 bipolar II comorbid bpd
 
