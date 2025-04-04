@@ -3,11 +3,10 @@ ive been getting alot of ableism comments lately, it's deteriorating my mental h
 
 c+h freely
 
-traumatised and coping
-
 dni:
 - past exes who ARE adults. i can forgive teens (13-18) for their actions, they're learning from their mistakes. its wrong but its alright. i do not CARE you hoover me
 - i am strange, i do not want to act normal. i have tolerance acting normal now
+- if you have personal vendetta against me, i prefer if you dm me. communication is so difficult now
 - im very insensitive/apathetic in my words and im very insufferable to talk with. you can always tell me if its bothering you but most of the time ill just hide you if its something i cope :')
 
 > anyways check out my art
