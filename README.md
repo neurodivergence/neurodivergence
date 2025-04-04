@@ -2,6 +2,7 @@
 ive been getting alot of ableism comments lately, it's deteriorating my mental health
 
 c+h freely
+feel free to interact with me, but if you're looking for something more serious whether emotional or personal- i prefer to keep that 17+ only. due to past trauma, i tend to take on a parentive role with anyone younger, so i naturally treat them more like my own children
 
 dni:
 - past exes who ARE adults. i can forgive teens (13-18) for their actions, they're learning from their mistakes. its wrong but its alright. i do not CARE you hoover me
