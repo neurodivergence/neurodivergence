@@ -9,7 +9,7 @@ dni:
 - if you have personal vendetta against me, i prefer if you dm me. communication is so difficult now
 - im very insensitive/apathetic in my words and im very insufferable to talk with. you can always tell me if its bothering you but most of the time ill just hide you if its something i cope :')
 
-i do not care who you are , just dont be a creep idfk
+i do not care who you are when interacting, just dont be a creep idfk
 
 > anyways check out my art
 
