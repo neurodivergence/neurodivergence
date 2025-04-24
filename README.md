@@ -1,5 +1,7 @@
 my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar
 
+im very hesitant on interacting with people and would rather stick to circle of closed friends i have
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
