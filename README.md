@@ -3,7 +3,7 @@ my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. i
 im very hesitant on interacting with people and would rather stick to circle of closed friends i have
 if im inactive for some time, its mental health issue
 
--16 dni unless youre here to vent, im open to talk
+-16 dni unless i consider you as a family mutually, im open to talk
 
 > anyways check out my art
 
