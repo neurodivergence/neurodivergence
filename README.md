@@ -1,7 +1,9 @@
 my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar
 
 im very hesitant on interacting with people and would rather stick to circle of closed friends i have
-if im inactive for some time, its mental health issue. im terribly sorry if i ghost you! you may remind me to respond 
+if im inactive for some time, its mental health issue
+
+-16 dni unless youre here to vent, im open to talk
 
 > anyways check out my art
 
