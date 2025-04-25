@@ -1,6 +1,6 @@
 my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar
 
-im very hesitant on interacting with people and would rather stick to circle of closed friends i have. UNLESS. you interact and i really like your vibe (usually happens if youre also an artist who is patient and considerate) then id eventually be clingy to you LMFAO
+im very hesitant on interacting with people and would rather stick to circle of closed friends i have. but i do not mind being interacted! i do not bite
 
 if im inactive for some time, its mental health issue
 
