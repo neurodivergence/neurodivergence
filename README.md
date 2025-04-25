@@ -6,8 +6,6 @@ my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. i
 
 i struggle with mood congruence (example: laughing at funeral when youre supposed to be grieving) because i have bipolar. my emotions are innapropriate and insensitive but its underlying mental health issue please understand that before interacting with me
 
-if im inactive for some time, its mental health issue
-
 -16 dni unless i consider you as a family mutually, im open to talk
 
 > anyways check out my art
