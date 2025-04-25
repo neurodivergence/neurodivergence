@@ -1,3 +1,7 @@
+this image below is just for comfort reasons
+
+![alt text](https://files.catbox.moe/k7e82w.jpg)
+
 my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar
 
 im very hesitant on interacting with people and would rather stick to circle of closed friends i have. but i do not mind being interacted! i do not bite
