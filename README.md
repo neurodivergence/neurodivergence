@@ -4,7 +4,7 @@ this image below is just for comfort reasons
 
 my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar
 
-im very hesitant on interacting with people and would rather stick to circle of closed friends i have. but i do not mind being interacted! i do not bite
+i struggle with mood congruence (example: laughing at funeral when youre supposed to be grieving) because i have bipolar. my emotions are innapropriate and insensitive but its underlying mental health issue please understand that before interacting with me
 
 if im inactive for some time, its mental health issue
 
