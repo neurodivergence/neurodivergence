@@ -2,7 +2,7 @@ please check out these sources!
 
 https://rentry.co/charitylinks
 
-my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar. all the money will go to palestine donations
+my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar. all the money will go to palestine donations, im not financially unstable and i have a job lmao
 
 mood disorder
 
