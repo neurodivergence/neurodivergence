@@ -1,6 +1,6 @@
-this image below is just for comfort reasons
+please check out these sources!
 
-![alt text](https://files.catbox.moe/k7e82w.jpg)
+https://rentry.co/charitylinks
 
 my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. its never above 15 dollar
 
