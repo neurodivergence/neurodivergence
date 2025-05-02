@@ -6,7 +6,7 @@ my comms are open :) feel free to dm @crippledinwheelchair in disc for prices. i
 
 mood disorder
 
--16 dni unless i consider you as a family mutually, im open to talk
+-16 or "age range" dni unless i consider you as a family mutually, im open to talk (if u dont know what it meant i dont like talking to below 16 unless i consider you as internet relative thank you!)
 
 > anyways check out my art
 
