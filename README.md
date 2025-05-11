@@ -14,7 +14,7 @@ info abt me:
 my lovely friends, cooking/baking, tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
 
 **byf :**
-idk i see everyone as a person as long as youre not a fucked up individual
+idk i see everyone as a person as long as youre not a fucked up individual.
 im sorry if i show any of my symptoms, i do not like masking
 
 > anyways check out my art
