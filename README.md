@@ -6,6 +6,13 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
+info abt me:
+- my name is lance, only closed friends may call me by my old names
+- i am coping and my boyfriend is builderman
+
+**likes**
+tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
