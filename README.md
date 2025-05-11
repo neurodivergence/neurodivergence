@@ -11,7 +11,7 @@ info abt me:
 - i am coping and my boyfriend is builderman
 
 **likes :**
-tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
+my lovely friends, cooking/baking, tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
 
 **byf :**
 idk i see everyone as a person as long as youre not a fucked up individual
