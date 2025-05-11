@@ -8,13 +8,14 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 info abt me:
 - my name is lance, only closed friends may call me by my old names
-- i am coping and my boyfriend is builderman
+- i am coping
 
 **likes :**
 my lovely friends, cooking/baking, tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
 
 **byf :**
 idk i see everyone as a person as long as youre not a fucked up individual
+im sorry if i show any of my symptoms, i do not like masking
 
 > anyways check out my art
 
