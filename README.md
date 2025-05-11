@@ -10,8 +10,10 @@ info abt me:
 - my name is lance, only closed friends may call me by my old names
 - i am coping and my boyfriend is builderman
 
-**likes**
+**likes :**
 tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
+**dislikes :**
+idk i see everyone as a person as long as youre not a fucked up individual
 
 > anyways check out my art
 
