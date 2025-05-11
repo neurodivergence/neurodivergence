@@ -4,7 +4,7 @@ https://rentry.co/charitylinks
 
 MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
-![alt text](https://files.catbox.moe/n1hypn.png)
+![alt text](https://files.catbox.moe/h9epxr.png)
 
 > anyways check out my art
 
