@@ -12,7 +12,7 @@ info abt me:
 
 **likes :**
 tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
-**dislikes :**
+**byf :**
 idk i see everyone as a person as long as youre not a fucked up individual
 
 > anyways check out my art
