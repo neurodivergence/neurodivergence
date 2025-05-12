@@ -17,6 +17,8 @@ my lovely friends, cooking/baking, tamagotchi, chiikawa, blocktales, dvn, cookie
 idk i see everyone as a person as long as youre not a fucked up individual.
 im sorry if i show any of my symptoms, i do not like masking
 
+im very avoidant to clingy people, but clingy to avoidant people. im working on that 
+
 > anyways check out my art
 
 ![alt text](https://files.catbox.moe/p3im38.png)
