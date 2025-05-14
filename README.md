@@ -8,7 +8,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 info abt me:
 - my name is lance, only closed friends may call me by my old names
-- i am coping
+- if you see me talking to literally nobody in docks, it's because my friends are in a party chat and i'm responding in public like an idiot. or i'm just super vocal and annoying as hell. call me delusional if that makes you feel better
 
 **likes :**
 my lovely friends, cooking/baking, tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
