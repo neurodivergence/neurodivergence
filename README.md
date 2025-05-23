@@ -8,7 +8,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 info:
 i smoke weed at 14.
-i almost got into jail when i was 16
+i was hospitalised 7 times 
 
 byf:
 i am coping , im very insufferable to talk with.
