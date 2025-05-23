@@ -15,6 +15,7 @@ i view everyone as a person idgaf who u r just dont be a creep and project ur sh
 
 dni:
 spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason
+
 15-
 
 > anyways check out my art
