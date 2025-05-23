@@ -7,13 +7,11 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
 info:
-i smoke weed at 14
-
+i smoke weed at 14.
 i almost got into jail when i was 16
 
 byf:
-i am coping , im very insufferable to talk with
-
+i am coping , im very insufferable to talk with.
 i view everyone as a person idgaf who u r just dont be a creep
 
 dni:
