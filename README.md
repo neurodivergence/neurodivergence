@@ -12,12 +12,12 @@ i smoke weed at 14
 byf:
 - i have bipolar + nightmare / flashbacks and im very insufferable to talk with
 - sexually ambivalent
-- i usually only realize and speak up about my boundaries after i’ve been hurt for a while. it’s not your fault when i bring it up late — i just don’t always know my limits until then. so if i say something makes me uncomfortable, please don’t overthink it or question it, just understand (dont blame urself. its entirely on my fault)
+- i usually only realize and speak up about my boundaries after i’ve been hurt for a while. it’s not your fault when i bring it up late — i just don’t always know my limits until then. so if i say something makes me uncomfortable, please don’t overthink it or question it, just understand (dont blame urself. its entirely on my fault not to know my own boundaries)
 
 dni:
 - exes 
 - 15-
-- i view everyone as a person idgaf who u r just dont be a creep and project ur shit to me. if what u do is harmless have fun lallalaa
+- i view everyone as a person idgaf who u r just dont be a creep and project ur shit to me. as long as its harmless i am fine with it
 
 > anyways check out my art
 
