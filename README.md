@@ -9,7 +9,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 dni:
 spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason. bringing it up again because i keep getting recurrent nightmares of this person
 
-you were a person that spread misinformation about me, you happen to do it again. I do not want you in my life amymore
+you were a person that spread misinformation about me, you happen to do it again. i do not want you in my life amymore
 
 as a person who was underage and you surrounded me with irresponsible adults, i do not like you
 
