@@ -7,8 +7,8 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
 dni:
-spiritualwhiteout or his friends, its pretty personal but as a person who is adult youre kinda irresponsible and traumatising. youre free to ask the reason
-i also have a private document if youre closed 
+spiritualwhiteout or his friends, its pretty personal but as a person who is adult youre kinda irresponsible and traumatising. youre free to ask the reason.
+i have a private document if youre closed 
 
 > anyways check out my art
 
