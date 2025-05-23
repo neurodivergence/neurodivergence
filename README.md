@@ -10,13 +10,16 @@ info:
 i smoke weed at 14
 
 byf:
+
 i have a mood disorder + cptsd and im very insufferable to talk with
-i view everyone as a person idgaf who u r just dont be a creep and project ur shit to me
 
 dni:
+
 exes 
 
 15-
+
+i view everyone as a person idgaf who u r just dont be a creep and project ur shit to me
 
 > anyways check out my art
 
