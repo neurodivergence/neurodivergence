@@ -7,8 +7,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
 info:
-i smoke weed at 14.
-i was hospitalised 7 times 
+i smoke weed at 14
 
 byf:
 i am coping , im very insufferable to talk with.
