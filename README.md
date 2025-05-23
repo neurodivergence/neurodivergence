@@ -17,7 +17,7 @@ byf:
 dni:
 - exes 
 - 15-
-- if i see a problem i will personally block you
+- if i see a problem i will personally block you because no matter what dni you have people will still try to interact with you
 
 > anyways check out my art
 
