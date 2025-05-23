@@ -17,7 +17,7 @@ byf:
 dni:
 - exes 
 - 15-
-- i view everyone as a person idgaf who u r just dont be a creep and project ur shit to me
+- i view everyone as a person idgaf who u r just dont be a creep and project ur shit to me. if what u do is harmless have fun lallalaa
 
 > anyways check out my art
 
