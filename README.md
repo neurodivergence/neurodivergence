@@ -10,8 +10,8 @@ info:
 i smoke weed at 14
 
 byf:
-- i have bipolar + cptsd and im very insufferable to talk with
-- sexually ambivalent, i tend to "talk" good of myself but it will never be directed at others. take it as compliment, if youre uncomfortable youre free to tell but most of the time i ask for consent first
+- i have bipolar + nightmare / flashbacks and im very insufferable to talk with
+- sexually ambivalent, i tend to make nsfw-ish joke of myself but it will never be directed at others. take it as compliment, if youre uncomfortable youre free to tell but most of the time i ask for consent first. if youre a fucking 20+ and enable that behaviour its entirely on your fault
 
 dni:
 - exes 
