@@ -8,7 +8,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 byf:
 i am coping , i know actions have consequences im very impulsive 
-i view everyone as a person idgaf who u r 
+i view everyone as a person idgaf who u r just dont be a creep
 
 dni:
 spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason. as a person who was underage and you surrounded me with irresponsible adults, im hesitant on you
