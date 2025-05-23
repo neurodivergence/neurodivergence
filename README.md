@@ -6,10 +6,15 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
-dni:
-spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason. bringing it up again because i keep getting recurrent nightmares of this person
+byf:
+i am coping , i know actions have consequences im very impulsive 
+i view everyone as a person idgaf who u r 
 
-as a person who was underage and you surrounded me with irresponsible adults, i do not like you
+dni:
+spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason
+16- 💔
+
+as a person who was underage and you surrounded me with irresponsible adults, im hesitant on you
 
 > anyways check out my art
 
