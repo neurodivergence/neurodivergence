@@ -12,6 +12,7 @@ i view everyone as a person idgaf who u r just dont be a creep
 
 dni:
 spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason. as a person who was underage and you surrounded me with irresponsible adults, im hesitant on you
+
 15-
 
 > anyways check out my art
