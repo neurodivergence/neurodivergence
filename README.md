@@ -11,7 +11,7 @@ i smoke weed at 14
 
 byf:
 - i have bipolar + nightmare / flashbacks and im very insufferable to talk with
-- sexually ambivalent. i make nsfw-ish jokes about myself sometimes, but never toward others. i usually ask for consent first, but if anything makes you uncomfortable, you're free to say so
+- sexually ambivalent. i make nsfw-ish jokes about myself sometimes, but never toward others. i usually ask for consent first, but if anything makes you uncomfortable, you're free to say so. if im suddenly uncomfortable with sexual topics, RESPECT THOSE FUCKING BOUNDARIES
 
 dni:
 - exes 
