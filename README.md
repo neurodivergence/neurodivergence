@@ -11,10 +11,8 @@ i am coping , i know actions have consequences im very impulsive
 i view everyone as a person idgaf who u r 
 
 dni:
-spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason
-16- 💔
-
-as a person who was underage and you surrounded me with irresponsible adults, im hesitant on you
+spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason. as a person who was underage and you surrounded me with irresponsible adults, im hesitant on you
+15-
 
 > anyways check out my art
 
