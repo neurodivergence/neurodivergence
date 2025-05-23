@@ -6,18 +6,8 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
-info abt me:
-- my name is lance, only closed friends may call me by my old names
-- if you see me talking to literally nobody in docks, it's because my friends are in a party chat and i'm responding in public like an idiot. or i'm just super vocal and annoying as hell. call me delusional if that makes you feel better
-
-**likes :**
-my lovely friends, cooking/baking, tamagotchi, chiikawa, blocktales, dvn, cookie run. ones im currently fixated rn
-
-**byf :**
-idk i see everyone as a person as long as youre not a fucked up individual.
-im sorry if i show any of my symptoms, i do not like masking. however that does not excuse me from my actions, you may tell me what i did wrong infact i appreciate it
-
-when u want to friend me, ill let u know im very avoidant to clingy people, but clingy to avoidant people. im working on my disorganised attachment
+dni:
+spiritualwhiteout or his friends, its pretty personal but as a person who is adult youre kinda irresponsible and have caused traumatising shit in my life. youre free to ask the reason
 
 > anyways check out my art
 
