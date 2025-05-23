@@ -10,7 +10,7 @@ info:
 i smoke weed at 14
 
 byf:
-- i have a mood disorder + cptsd and im very insufferable to talk with
+- i have diagnosed bipolar + highly suspected cptsd and im very insufferable to talk with
 
 dni:
 - exes 
