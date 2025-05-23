@@ -17,7 +17,7 @@ byf:
 dni:
 - exes 
 - 15-
-- i view everyone as a person idgaf who u r just dont be a crimeful creep and project ur shit to me. i free block but dont worry i rarely block unless youre a bothersome
+- if i see a problem i will personally block you
 
 > anyways check out my art
 
