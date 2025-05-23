@@ -7,8 +7,9 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
 dni:
-spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason.
+spiritualwhiteout or his friends, its pretty personal but youre free to ask the reason. bringing it up again because i keep getting recurrent nightmares of this person
 i have a private document if youre closed 
+
 as a person who was underage and you surrounded me with irresponsible adults, i do not like you 
 
 > anyways check out my art
