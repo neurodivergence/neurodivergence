@@ -12,7 +12,7 @@ i smoke weed at 14
 byf:
 - i have bipolar + nightmare / flashbacks and im very insufferable to talk with
 - sexually ambivalent. i make nsfw-ish jokes about myself sometimes, but never toward others. i usually ask for consent first, but if anything makes you uncomfortable, you're free to say so
-- i usually only realize and speak up about my boundaries after i’ve been hurt for a while. it’s not your fault when i bring it up late — i just don’t always know my limits until then. so if i say something makes me uncomfortable, please don’t overthink it or question it, just understand (dont overthink it or blame urself either its my fault for not stating beforehand)
+- i usually only realize and speak up about my boundaries after i’ve been hurt for a while. it’s not your fault when i bring it up late — i just don’t always know my limits until then. so if i say something makes me uncomfortable, please don’t overthink it or question it, just understand (dont blame urself. its entirely on my fault)
 
 dni:
 - exes 
