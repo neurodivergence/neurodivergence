@@ -16,7 +16,7 @@ byf:
 
 dni:
 - basic dni criteria
-- people who joke about rape
+- people who joke about pedophilia/rape (diddy jokes, im gonna touch u, etc)
 - exes 
 - 15-
 
