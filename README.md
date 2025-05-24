@@ -16,7 +16,6 @@ byf:
 
 dni:
 - basic dni criteria
-- "rape is worse than anything" mindset. i would say that rape is inexcusable
 - exes 
 - 15-
 
