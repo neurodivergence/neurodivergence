@@ -7,7 +7,7 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
 info:
-i smoke weed at 14
+- all my socials are private, you may ask for one but i will ask you beforehand on your age first since none of them are sfw, please understand!
 
 byf:
 - i have bipolar + cptsd and im very insufferable to talk with because i will literally say "huh" and ask you to elaborate many times
@@ -18,7 +18,6 @@ dni:
 - basic dni criteria
 - pedophilia / rape / incest culture. idk get out of here
 - exes 
-- 15- or age range iwec
 - peanut butter enjoyers
 
 > anyways check out my art
