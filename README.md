@@ -16,7 +16,7 @@ byf:
 
 dni:
 - basic dni criteria
-- people who joke about pedophilia/rape (diddy jokes, im gonna touch u, etc)
+- people who joke about pedophilia/rape (diddy jokes, im gonna touch u, etc). hiding "dark humor" with blatant discrimination 
 - exes 
 - 15-
 
