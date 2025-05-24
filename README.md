@@ -16,7 +16,7 @@ byf:
 
 dni:
 - basic dni criteria
-- delusional yumeshippers 
+- "rape is worse than anything" mindset
 - exes 
 - 15-
 
