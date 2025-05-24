@@ -15,9 +15,10 @@ byf:
 - i usually only realize and speak up about my boundaries after i’ve been hurt for a while. it’s not your fault when i bring it up late — i just don’t always know my limits until then. so if i say something makes me uncomfortable, please don’t overthink it or question it, just understand (dont blame urself. its entirely on my fault not to know my own boundaries)
 
 dni:
+- basic dni criteria
+- delusional yumeshippers 
 - exes 
 - 15-
-- if i see a problem i will personally block you because no matter what dni you have people will still try to interact with you
 
 > anyways check out my art
 
