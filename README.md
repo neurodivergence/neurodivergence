@@ -16,7 +16,7 @@ byf:
 
 dni:
 - basic dni criteria
-- crimeful motherfucks
+- people who joke about rape
 - exes 
 - 15-
 
