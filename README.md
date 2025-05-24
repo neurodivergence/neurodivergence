@@ -16,7 +16,7 @@ byf:
 
 dni:
 - basic dni criteria
-- pedophilia / rape culture
+- pedophilia / rape / incest culture. idk get out of here
 - exes 
 - 15-
 
