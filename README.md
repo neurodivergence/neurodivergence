@@ -18,7 +18,7 @@ dni:
 - basic dni criteria
 - pedophilia / rape / incest culture. idk get out of here
 - exes 
-- 15-
+- 15- iwec
 - peanut butter enjoyers
 
 > anyways check out my art
