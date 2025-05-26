@@ -7,7 +7,8 @@ MY MOTHER MISTREATS ME (CANON NOT FAKE)
 ![alt text](https://files.catbox.moe/h9epxr.png)
 
 info:
-- all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age—please understand!
+- all my socials are private, and so is my personal life. you may ask for one, but i will ask for your age first, as none of them are sfw. you must be of legal age — please understand!
+- i am a straight trans man boo does that scare you? j
 
 byf:
 - i have bipolar + cptsd and im very insufferable to talk with because i will literally say "huh" and ask you to elaborate many times
