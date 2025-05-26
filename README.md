@@ -17,7 +17,7 @@ byf:
 dni:
 - basic dni criteria
 - pedophilia / rape / incest culture. idk get out of here
-- terfs, transmed, radfem etc, harmful labels. but if youre a lesboy or whatever mspec that shit i do not care you interacting with me go crazy 💔 there are bigger issues in the world
+- terfs, transmed, radfem, endos, antu-recovery, harmful labels. but if youre a lesboy or whatever mspec that shit i do not care you interacting with me go crazy 💔 there are bigger issues in the world
 - exes
 - peanut butter enjoyers
 
