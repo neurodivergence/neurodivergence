@@ -18,7 +18,7 @@ dni:
 - basic dni criteria
 - pedophilia / rape / incest culture or proship. idk get out of here
 - dni terfs, transmed, radfem, endos, anti-recovery, antisemites, orientalists, fakeclaimers, harmful labels. but if you're a "lesboy" or something similar, i don't care — i think sexuality is meaningless and you don't need to police how people use certain labels
-- exes
+- exes, ive been blackmailed by exes before idk i don't trust them all its better to be cautious
 - peanut butter enjoyers
 
 > anyways check out my art
